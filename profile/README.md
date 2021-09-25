@@ -8,7 +8,7 @@
 
 | TAM (Tam Sao / Samsung) | QUYỀN | PHÂN LẬP |
 | :--- | :--- | :--- |
-| ![SAIGON-PHONE HAY SAMSUNG (Tam Sao)?](/saigon-phone.png) | ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý RỒNG 2 ĐẦU](/3DacKhu.map.2.jpg) | ![Hongkong mô hình tam quyền](/flag_of_hongkongers.png)
+| ![SAIGON-PHONE HAY SAMSUNG (Tam Sao)?](/profile/saigon-phone.png) | ![YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý RỒNG 2 ĐẦU](/profile/3DacKhu.map.2.jpg) | ![Hongkong mô hình tam quyền](/profile/flag_of_hongkongers.png)
 
 ### [Việt Nam Cộng Hòa Projects](https://vnch.github.io) [https://vnch.github.io](https://vnch.github.io)
 - [Full Plain-text Source: https://github.com/vnch/vnch.github.io](https://github.com/vnch/vnch.github.io)

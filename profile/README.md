@@ -1,4 +1,4 @@
-### Nhóm QUỐC-CƯỜNG Tuổi Trẻ Quốc Nội + CHỐNG Việt:Cộng:Độc:Quyền:Tư:Tưởng!!!
+### Nhóm QUỐC-CƯỜNG Tuổi Trẻ Quốc Nội CHỐNG Việt:Cộng:Độc:Quyền:Tư:Tưởng!!!
 - [**Cẩm nang** đấu trí với bọn Việt:Cộng từ chóp:bu cho tới rau:râm](https://github.com/vnch/vnch.github.io/blob/master/1/cam-nang/tra-loi-dlv.md)
   - Bụt Buddha đã nói: "Ta là bụt đã thành, chúng sanh là bụt sẽ thành". Chỉ có Việt_Cộng bơm vô đầu dân "để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"!!!
 - [KHÔNG YÊU CẦU DANH TÁNH, để tránh bị gài bẫy, bị làm mồi cho Việt:Cộng lập công](https://github.com/vnch/vnch.github.io/blob/master/JOIN-US.md#khong-yeu-cau-danh-tanh)

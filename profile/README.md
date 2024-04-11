@@ -1,3 +1,9 @@
+### 2024 UPDATE YÊU-SÁCH-3-ĐẶC-KHU-VNCH TRƯNG CẦU DÂN Ý
+Nếu VietCọng chịu mở 3-đặc-khu, thì giờ đã có 3 khu cho các hãng Intel, NVIDIA, TSMC... chứ đâu có bị các hãng này rút hết!
+Mỗi nơi mời mỗi nước trong 4 cường quốc **Mỹ-Úc-Nhật-Hàn** mới vừa kí "đối tác chiến lược toàn diện"
+Còn đối tác **ChungTươngLai** thì cho 3 khu ở ngoài BaĐình.
+Chỉ nguyện chung bàn nhậu thôi, còn nhà nó sập thì kệ nó chứ, không ChungVậnMệnh đâu nhé!!!
+
 ### Nhóm QUỐC-CƯỜNG Tuổi Trẻ Quốc Nội CHỐNG Việt:Cộng:Độc:Quyền:Tư:Tưởng!!!
 - [**Cẩm nang** đấu trí với bọn Việt:Cộng từ chóp:bu cho tới rau:râm](https://github.com/vnch/vnch.github.io/blob/master/1/cam-nang/tra-loi-dlv.md)
   - Bụt Buddha đã nói: "Ta là bụt đã thành, chúng sanh là bụt sẽ thành". Chỉ có Việt_Cộng bơm vô đầu dân "để cho đảng lo", "đảng là cha là mẹ của dân", "dân ngu nên không thể lập đảng mới"!!!

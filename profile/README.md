@@ -1,4 +1,5 @@
-### Dự án Khôi Phục VNCH 2 triệu người hải ngoại ᕙ(⇀‸↼‶)ᕗ
+### Dự án [VNCH-Island-Chain](https://github.com/vnch/VNCH-Island-Chains) Phục-Hưng-VNCH 2 triệu người hải ngoại ᕙ(⇀‸↼‶)ᕗ
+- **VNCH-Island-Chain** https://github.com/vnch/VNCH-Island-Chains
 - (ʘ‿ʘ)╯ Giả sử khôi phục lại trên hòn đảo bỏ hoang.
 Với 2 triệu người hải ngoại, $10/người thì dư tiền mua chục đảo.
 Cải tạo sửa chữa xong vẫn còn dư tiền xây hạ tầng!
